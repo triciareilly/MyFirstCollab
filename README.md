@@ -1,5 +1,9 @@
 # MyFirstCollab
 
-This is a really long text thing
+Trisha: Hi Dustin!! :D
 
-Also, D-Master was here!
+Dustin: This is a really long text thing
+
+Dustin: Also, D-Master was here!
+
+
